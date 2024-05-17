@@ -1,1 +1,1 @@
-week_1.heic is my drawing, the other is AI.
+See the attachments, weeK_1.heic is my drawing.
